@@ -1,7 +1,7 @@
 # USAGE MANUAL
 ---
 ## 1. Find your target
-It'd be good if they were at least a lttle tiny bit interested in you (if you were already friendzoned just let ito, please)
+It'd be good if they were at least a lttle tiny bit interested in you (if you were already friendzoned just let it go, please)
 
 
 ## 2. Send the card
